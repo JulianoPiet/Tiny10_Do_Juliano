@@ -1,1 +1,0 @@
-# Tiny10_Do_Juliano
